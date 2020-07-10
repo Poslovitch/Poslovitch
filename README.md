@@ -1,4 +1,8 @@
-### Hi there 👋
+### Florian "Poslovitch" CUNY
+
+> *Ad astra per aspera* — To the stars, through hardships.
+
+The world around us is changing at a steadily growing pace. It takes solid collaboration between communities and people around the world to solve problems and fulfill the needs of others. In a world of distant socializing, what matters the most is not who I am. It is rather about what I do.
 
 <!--
 **Poslovitch/Poslovitch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
