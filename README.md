@@ -1,4 +1,4 @@
-### Florian "Poslovitch" CUNY
+### Florian "Poslovitch" Cuny
 
 > *Ad astra per aspera* — To the stars, through hardships.
 
